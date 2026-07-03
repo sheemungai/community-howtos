@@ -17,6 +17,7 @@ This is their gift to the Codetopia Community. 🫶
 - [Ramzy Gbati Konde](https://portal.community.codetopia.org/@ramzyq)
 - [Sheilla Mungai](https://portal.community.codetopia.org/@sheilla)
 - [Obed Yakpa](https://portal.community.codetopia.org/@obedyakpa)
+- [Kelvin Kitheka](https://portal.community.codetopia.org/@kitheka)
 
 
 
